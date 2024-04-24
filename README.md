@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to be the futur dictator
 - 💞️ I’m looking to collaborate on genital website
 - 📫 How to reach me no one can
-- 😄 Pronouns: stf
+- 😄 Pronouns: yes
 - ⚡ Fun fact:  no
 
 
